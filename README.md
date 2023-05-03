@@ -1,4 +1,11 @@
-### Hi there 👋
+### Hi 👋
+
+novice developer (●'◡'●)
+
+learning 🔥🔥
+
+🛠 Tech Stack 🛠
+
 
 <!--
 **dozero25/dozero25** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
