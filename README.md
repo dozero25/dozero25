@@ -2,8 +2,6 @@
 
 Hi 👋
 
-novice developer (●'◡'●)
-
 learning 🔥🔥
 
 ### 🛠 My Stack 🛠
